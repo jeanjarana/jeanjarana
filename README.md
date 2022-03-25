@@ -1,6 +1,6 @@
 ## Hello !
 
-![sprout!](https://user-images.githubusercontent.com/90890274/160061652-6d6a5df4-c1d9-4844-9280-dd95b0e57030.gif) ***{ Welcome to my space }*** 
+![sprout!](https://user-images.githubusercontent.com/90890274/160062828-f2eaba04-0a28-4e7d-bca8-de250a956b94.gif) ***{ Welcome to my space }*** ![sprout!](https://user-images.githubusercontent.com/90890274/160062832-2c75db31-b81f-41da-90ce-5134ff973490.gif)
 
 ---
 
@@ -17,4 +17,4 @@
 
 ### likes & dislikes ?!?
 
-+ not to brag but he's my boyfriend 👀 -> ![image](https://user-images.githubusercontent.com/90890274/160062647-078a0e1c-5674-4d2a-8c5e-ae873ca083e1.png)
++ not to brag but he's my boyfriend 👀 -> ![thoma](https://user-images.githubusercontent.com/90890274/160062895-b1c8a63b-6154-4fd8-93d9-6a1ca253d962.png)
