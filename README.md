@@ -2,8 +2,8 @@
 
 ***{ Welcome to my space }***
 
-![image](https://user-images.githubusercontent.com/90890274/160060687-43e00816-150a-4aab-be6c-c995655de514.png)
+![sprout!](https://user-images.githubusercontent.com/90890274/160060994-06017322-858f-4e1f-9e07-954c2891c4ce.gif)
 
 > my name is jean ♡ <br />
 > i am a grade 10 student ⭐︎
-(*soon to be a thomasian*) 💛🐯
+*soon to be a thomasian* 💛🐯
