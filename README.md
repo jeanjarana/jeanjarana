@@ -6,7 +6,7 @@
 
 > my name is jean ♡ <br />
 > i am a grade 10 student ⭐︎
-*soon to be a thomasian* 💛🐯
+*thomasian soonest* 💛🐯
 
 ---
 
