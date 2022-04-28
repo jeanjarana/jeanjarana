@@ -17,5 +17,5 @@
 
 ### likes & dislikes ?!?
 
-+ he's my boyfriend 👀 -> ![thoma](https://user-images.githubusercontent.com/90890274/160063086-b5693d41-ecd2-439f-a3c0-9ce0ef56c76c.png)
-+ i don't really have dislikes but if i were to name some, **people who give 0 contributioin** , **sugarcoating**, **oily/salty food** , and **dust**.
++ 👀 -> ![thoma](https://user-images.githubusercontent.com/90890274/160063086-b5693d41-ecd2-439f-a3c0-9ce0ef56c76c.png)
++ i don't really have dislikes but if i were to name some, **people who give 0 contribution** , **sugarcoating**, **oily/salty food** , and **dust**.
