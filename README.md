@@ -5,8 +5,7 @@
 ---
 
 > my name is jean ♡ <br />
-> i am a grade 10 student ⭐︎
-*thomasian soonest* 💛🐯
+> currently a grade 12 thomasian 💛🐯⭐︎
 
 ---
 
@@ -18,4 +17,4 @@
 ### likes & dislikes ?!?
 
 + 👀 -> ![thoma](https://user-images.githubusercontent.com/90890274/160063086-b5693d41-ecd2-439f-a3c0-9ce0ef56c76c.png)
-+ i don't really have dislikes but if i were to name some, **people who give 0 contribution** , **sugarcoating**, **oily/salty food** , and **dust**.
++ **dust**.
